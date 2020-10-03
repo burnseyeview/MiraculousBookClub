@@ -85,7 +85,7 @@
 	* "You got 100%, how does that feel?" type of question framing.
 	* teaching them to live purposefully
 
-The Four houses
+**THE FOUR HOUSES**
 - expect changeup on this metaphor in the future
 - The house metaphor of the self. We're stuck on room 1 but we don't see rooms 2-4
 - BIP idea where you break out of one cell but you find yourself in another.
@@ -111,7 +111,7 @@ The Four houses
 	* Similar correlation where your skills communicate with you as you progress up.
 	
 
-Machines:
+**MACHINES**
 - Deleuze and Guattari
 - War machines. all things people are involved in are machines
 	* Horse + person + spear = war machine
