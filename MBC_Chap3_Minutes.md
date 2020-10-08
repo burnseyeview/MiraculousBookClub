@@ -97,9 +97,6 @@
 - like tail end of conversation
 - moon festival --- recent
 
-*doorknob*
-- who was steering
-
 **sex center**
 - orgone energy produced by 
 	- Wilhelm Reich
