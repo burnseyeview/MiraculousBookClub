@@ -1,0 +1,239 @@
+**Mingle chat**
+- language- - nobody speaks the same
+ - Contradictory terms
+ - limits of knowledge -- like material
+ - professor expected to forget his umbrella
+	- progress on even the dull items
+	- absentmindedness is expected in our society
+	- required to maybe identify that role in oneself?
+	- balance of energy centers. 
+		- perfecting into one at the expense of the others
+		- in right evolution there's a balance. but seems to say the faqir, monk, yogi, is the wrong way.
+		- examples of people who completed progress in his past
+		- is the absentminded prof the weak yogi?
+	- weak yogi, stupid saint, ... gullible monk? 
+	- wu-wei thinking without thinking, people trying to better themselves. 
+
+**Exercise Review**
+- plenty of negatives--constantly 
+	- notices physical injury
+	- nagging presence
+- broken into car, but cool sportscar rental
+	- reminder of this city, hyperaware
+	- only a 100-dollar deductible
+	- mixed feelings
+		- understood past privilege and new responsibility
+- relearn anger
+	- coworkers challenge and allow them to be due to presence
+	- the mental instructor
+		- stopping in and stopping the chain of reaction
+	- made conscious change to approach differently
+	- can't teach with anger, but with empathy
+- work incident with anger #2
+	- righteous indignation 
+	- FAV feeling
+	- then punish all! 🔥
+	- co-worker butts into project
+		- others were reinforcing the feeling or righteous indignation
+	- email "sorry you feel that way"
+	- stopping and with presence removed the indignation but put self in other's shoes
+		- responded with presence
+		- shouldn't have gotten through fire
+		- again, with the anger vs empathy
+		- recognized dangerous tempting feeling
+		- sitting in feelings
+- microaggressions at work are clearer
+- lsd processing through things
+- looking at self. seeing guards
+- appears to be the "center of the universe"
+- being aware in anger
+	- temper as a kid
+	- crisis point of becoming aware of the negative effects of the anger
+	- finding balance without stoking the feeling 
+- is the clinging to the feeling the missing the mark
+	- what do we do with that info
+- are we aware in our anger 
+- "Wrong work of centers"
+	- dominates the body
+	- body is "getting in on" the emotion
+- moving through emotions...first way is with the body
+	- first thing lost.
+	- normally, self-advice via the coping mechs
+
+**Chapter 4**
+- Knowing and being'
+	- how is it applied?
+	- exercise is better than reading it.
+		- doing it vs seeing it.
+	- requires a presence
+- Name is not understanding it
+	- find ways to embody it
+- GPT3 
+	- can play language games with words using word stats 
+	- it has no understanding beyond this
+	- humans similarly with statistical "word games"
+	- speaking "baby voice" is cross cultural
+		- via voice exaggeration
+		- sign lang speakers with infants do a sign language version of "baby voice"
+		- makes it easier to pick up 
+		- even tonal lang like, Chinese, for ex..there's so soothing quality in pitch
+- Experiential learning 
+	- Being taught about plants, herbal medicine
+	- you have to be there, gather, harvest, do it.
+	- sitting with the plant
+	- can't talk about consciousness without talking about embodiment
+	- learning and bringing it back
+	- engaging with the body to solidify the learning
+	- tapping kindergarteners by tapping vowels out with their hands
+- disembodying a separate entity like chaos mage
+- "BuzzFeed" quiz for the book to see where you are in the model!
+- observations we get from PDO are things that are there are things we don’t often look at
+	- there's a familiarity
+	- applying the system to experience
+
+**Law of Three**
+- three things going on, the affirmation, denial, resolution
+- Hegel. 😶
+- friction of yes/no and crystallization -- third 
+- Mu
+- discordian calendar - narrative about chaos to order to bureaucracy to aftermath.
+	- imperfect state.
+	- to be ordered
+	- the tension between each state
+- a complete map over chaos would look like chaos as it's closer to complete
+- so much media out there... idea about tradition roots to new ground
+	- end up with a creation out of tradition because we can't hold on to all of it
+	- once you call something a tradition, it's not what it was
+	- simulation of the original thing
+	- then new traditions are enhanced through bringing the special stuff along
+- synthesis becomes a new thesis
+- octave pattern
+
+**Ray of creation**
+- interference of laws create new laws
+- new laws get more complicated
+- big bang...before barely matter
+- then galaxies, stars, planets and so on.
+- matter gets finer and finer
+- each layer of this is its own cosmos, world and within it another world, each bear their own rules/laws.
+- planets there are laws
+- the laws above aren't AS important but they still affect us
+- orbital mechanics aren't as big of a deal as say eating
+- we are far apart things get
+- moon at the end of the ray of creation.
+- earth created the moon. a smaller planet. an 'infant planet'
+	- like how an asteroid impact might 
+- we are the baby of earth / sun
+- hard determinism
+- "there is one instance of life on earth” - Busey? 
+	- species, separate people, birds as different are things that happens AFTER the fact of life. the conception applied on top is not that. disco was labeled after the fact
+- Climate is influenced by humans. 
+	- moon relationship, tides and their effects
+- Blueprints
+	- plants, entecheley.
+		- you have an acorn, it has the entecheley, the blueprint of the oak. 
+		- intelligence of the oak contained within the seed unexpressed due to its required conditions.
+		- people and consciousness as an entecheley of the universe
+			- learning from the acorn
+			- consciousness is the entecheley of the universe
+			- hug a tree!
+		- food for the moon, if the natural flow happens, we live, we die for the benefit for the future of the moon.
+		entecheley - from classical philo, epicureans. seeds of things. things all arise from their seeds. Lucretius.
+		- Aristotle "stones want to be on ground"
+		- a teleos
+		- fourth way, revolting against the moon...going against the natural order.
+- universe of creation. something is next...we're not the last end.
+	- our being here is a part of it.
+		- circle of life
+		- all a seed for the next "world"
+		- part of being mechanical
+		- between feudalism/democracy, people were components of this processing system where it required a change.
+	- your birth and everything about you as a function of geography
+	- how is freedom claimed?
+		- will what is happening. to intend what we're doing.
+			- provides awareness of our intending, allows us to differentiate purposeful action from routine, mechanical actions.
+			- can't go beyond personal history until you own, take responsibility for it.
+- Evolution is getting out of automaticity 
+- greatest battle is between consciousness and automaticity
+- still bound by your circumstances ... your own personal entecheley. presence lifts out of circumstances
+	- what happens after food for the moon - Space, baby
+	- Elongate your vowels for the space baby
+- claiming what is.
+	- magical practice -- bring about what already is. 
+	- black sheep are still sheep
+	- useful idiot" -- think you’re taking aid from a mafia group but it's just the CIA using you as a pawn for the blahblahblah
+- mapping sephiroth to ray of creation...the broken phases
+	- the spheres are shattered because the light is so great
+		- task in esoteric Judaism is to repair the vessels
+		- repairing the world
+		- actively engaging in the teleo...purposeful action.
+			- the obstacle is the way
+
+**Different Types of Man**
+- man 1-8
+- maps to 8 circuit model
+- art of the "men"
+	- savage, uncivilized 
+	- carpet thing...was a big deal but then states native art as lesser... stood out because it wouldn't 
+	- might be more PDO's pov than G. 
+	- art breakdown into the three forces
+	- how does G know about these items if he's not?
+		- where are you driven via man 1-3, after that it's a bit more murky
+		- maybe best we can get is man 4. 
+		- people like Jesus maybe the highest, people who can 'see the whole elephant'
+	- outsider art: 
+		- all drive and naivety
+- Cram excerpt
+	- Dinner party where everyone cooks and feeds people
+	- persons to G right who would announce toasts and get everyone drunk
+	- toasts to the 'idiots' science of idiotism
+		- 21 types of 'idiot'
+	- every toast he would toast each idiot
+	- like cosmic schmuck idea
+	- tarot cards, fool’s journey
+	- ordinary idiot-super idiot...etc.
+		- early idiots are all in body
+		- intellectual idiots are more
+	- "obviousness matters" because we ignore it
+	- the court jester who speaks truth to power.
+	- consciousness journey through the major arcana
+		- overarching plans, a pattern playing out
+	
+**Aftermathematics is the pursuit of the 3rd force. how do we deal with that resistance?**
+- if we know the system, we can subvert them.
+- reframe the way we divide a dialectic. 
+- aftermath is the synthesis...you can't ever get there until thesis and antithesis collide...you need the friction.
+- the collision is the split moment...
+- the capital E event
+- is there a different way to deal with politics...is there another way to deal with this. 
+	- the teams -- it's encoded in our vocab.
+	- foster understanding 
+		- find place of empathy.
+		- friction can be different.
+		- make soup not bombs
+	- doing peace clustering
+		- each group clusters its own subset of preferences as people gravitate together
+		- horseshoe theory is dividing arbitrary small tents into big tents.
+		- big tents agree moderately but others get filtered in	
+	- the lie will compound itself until it is perfectly indistinguishable from truth by everyone
+	- constantly releasing pressure valves with policies
+	- can one find the pressure points on the base.
+	- judo on the dialectic
+	- be anchored on what makes it better over team politics
+	- G: war politics is dismissive ... eh planetary influences, seems to be waves where we kill each other and when we don’t.
+    - G story about crossing during the Bolshevik revolution
+		- playing the game
+	- find the ground of the mutually obvious
+	- do we try to construct a society that promotes individual liberation?
+		- creating the problem with the solution
+		- materiality of knowledge - not mass producible
+			- once you've created a bureaucracy you've changed the relationship of the people to the focus.
+
+**HOMEWORK OPTIONAL**
+- WRITE UP USING THE MATERIALS SO FAR 
+
+**Exercise**
+- how do you identify with Man 1, 2, 3
+- during the checks -- which one is strongest?
+- let in the identities more so as you need
+- Be a different Man than we are in a familiar activity
