@@ -105,3 +105,13 @@
 - where is the volition and where do you apply it? what's going on?
 - maintain 3-point awareness throughout.
 - "the driver inspecting the carriage"
+
+**Aside into the Book**
+- skeptical if someone has "the answer"
+- taking seriously, face value, or what I find most interesting what he says
+- finding ways of syncretize with thing I already knew
+- gnostic emphasis
+- miracle is something that comes from a 'higher' world
+- benefit: mental elasticity
+- benefit: cosmologies
+- mythology establishes context, the player characters' setting.
