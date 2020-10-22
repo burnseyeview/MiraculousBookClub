@@ -1,0 +1,107 @@
+**Experiment**
+ - tiring to get use to change
+ - writing music as man 2 to get good results
+ - little details in terms of performance
+ - man 3 is man 2 is man 1
+	- vocabulary of man 3 gives the impression that it's man 2
+	- angry or just hungry 
+- division of inner world
+- good way to organize, does it feel true?
+	- some things as a synthesis
+	- good way to organize creativity.
+		- is it true because it's useful?
+		- is true because someone told me or because I see it that way?
+		- pattern recognition
+	- model good for troubleshooting, good for projecting upon confusions
+		- modeling as 'center confusion'
+		- fixing per center lack
+		- roger Penrose, commentary of a commentary of a commentary...
+	- pulling in filtered out info
+		- default state missing a lot of info
+		- "driver only one who can fix the horse carriage"
+			- must be the master
+			- got to fix the broken down bike, ZatAoMM
+	- the physical makes itself known regardless
+- talking about trip experiences in terms of physical / emotional inputs and sensations
+	- how to integrate the experiences
+	- community experience, 4th way groups self remembering/sharing presence, sangha
+	- ritual space, unified crowd space, musician 
+- all three men?
+	- when the watcher is present
+	- playing the clarinet, physically taxing brings notice
+	- cultivating a neutral observer
+		- not analyzing
+		- spatial understanding
+		- "seeing where we are at"
+
+**Chapter 5**
+**Universe**
+- Sun is plasma, super chaotic, simple atoms. 
+	- earth life is volatile chemicals 
+	- we're made of water, oxygen, contained of carbon
+		- harnessed chaos
+	- rocks are crystalized
+	- atoms are all everywhere at once
+	- uh ... I lost it.. Enki did this thing about updating the science and it was wonderful
+- getting to a state where we're beyond mechanical
+- living beyond in the memories of others
+- presence in world outside of physical
+- Russian orthodox space colonizers -> Russian space program -> transhumanism
+- Man is a miniature universe - macro/micro-cosim
+	- self/universe is the same at different levels of zoom
+	- Mandelbrot fractal
+- Absolute is Alpha/Omega
+- rituals, Christianity, literal flesh and blood - Russian orthodox?
+- "idk i wasn't there" - G
+- Chemistry came from alchemy
+	- attempt to understand the spiritual laws to understand physical
+	- chemistry pulls the useful part - PDO?
+	- Science and occult are always being syncretized
+	- a drop of water has billions of cells, organisms
+	- people have all kinds of micro organisms
+- PDO not a chemist, but using to model
+- ray of creation -- from PDO?
+	- vector
+- A great deal of knowledge is needed to abolish one law to create a new one
+	- "the work"
+	- not becoming identified with a negation
+	- what is abolishing a law
+		- moving with purpose 
+		- can't do unless there's a 'person' who can 'do'
+		- doing something beyond emerging from the stimulus
+		- soldier standing in the rain, crystallization. 
+			- soldier changed his own dynamic, he 'chooses' whether to 'escape' the rain.
+				- Dune pain box - keep hand in box on purpose
+					- are you a human or an animal
+				- Meditation itch.	can feel the impulse, urge to scratch. .. choose no? not to scratch.
+					- observe the layers of the imperative to scratch. maybe it goes away?
+				- if you fight something you haven't conquered it
+					- resisting the itch is different than not being subjecting
+					- Do we have a choice in our natural reactions?
+					- breathing voluntary / involuntary  
+					- farting 
+					- excrameditation
+					- Freud - learning to controlling bowels / learning to control others 
+- GEB: is meaning inherent in universe or is created by brains?
+	- meaning is in the thing?
+	- is there things other than brains can find meaning in things?
+		- same meaning?
+	- multiple meanings and chipping away at what is meaningful
+	- when a mapping or connection arises ( tarot, life situations) we fit it within the story. someone else sees different meaning 
+		- traditional tarot symbolism invites meaning
+		- Hofstadter suggests we decode meaning in everything
+			- a program written novel - standard is someone reads and likes it. 
+				- unclear patterning
+				- so much variety people put away their ability to discern a finite interpretation.
+					- mimicking a modernist style, comic book style this 
+				- storytelling makes promises to a reader
+		- meaning comes from isomorphic relationships to exist 
+	- consistency - all consistent things are math, then all consistent things can have math applied to them, expressible or not.
+	- a property is a potential relationship between one thing and any other out--infinite properties
+	- context establishes meaning
+
+**Exercise:**
+- Find an automatic bodily, moment (like an itch, stop pissing midway...) stop, and view the automated process.
+- where is the volition and where do you apply it? what's going on?
+- maintain 3-point awareness throughout.
+- "the driver inspecting the carriage"
