@@ -16,7 +16,7 @@
 	- Rasputin’s tradition
 		- never trash talked G
 		- avert your eyes
-	- kosists - duty to resurrect everyone 
+	- cossacks - duty to resurrect everyone 
 	- Blavatsky - Atlantis stan
 		- also dead Tibetans
 - chapter clarifies the centers  
