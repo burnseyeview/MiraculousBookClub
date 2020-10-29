@@ -1,0 +1,133 @@
+- reads like a self help book
+- bits of spiritualism
+- determinism -- war
+	- individually  affected by external influence
+	- therefore people can't be held responsible
+- people held accountable if not awake
+- responsibility in terms of being a true person
+- politics on the macro...a lot of people being incompetent
+	- don’t' attribute to malice what you can attribute to incompetence
+	- including the model that includes others
+	- game design around human nature...rather than against it
+- q & a
+- master of self being the real question
+- specific Russian traditions 
+	- religious philosophy in Russia was weird
+	- Rasputin’s tradition
+		- never trash talked G
+		- avert your eyes
+	- kosists - duty to resurrect everyone 
+	- Blavatsky - Atlantis stan
+		- also dead Tibetans
+- chapter clarifies the centers  
+- reading after yoga helps focus attention
+	- adhd fidget toys otherwise need to fidget will prevent you from focus
+	- distraction in order to concentrate
+	- moving center wants to move. indulge it or it will find a way to do it
+- itch with meditation
+	- get phantom itch 
+	- you can tell its' not a real itch and it moves around
+	- only one itch
+- when you're sick you can't imagine not sick. how feeling now is forever
+- time
+	- thinking vs feeling time passing
+	- sense of time related to the density of what is stored in LTM?
+	- stopped clock illusion 
+		- happens with each eye movement
+- phrase: you are now breathing manually
+	- when your attention touches breathing -- auto to voluntary
+	- observation works in same way? 
+	- you are now aging manually
+	- it's invisible till you look at it
+- self observation being central to the works
+	- don't analyze while observing
+	- preconceived notions of self
+	- Zen story about full cup
+- kris as an empty cup
+	- moment observed, started filling the cup again
+	- learning through observation/experimentation, feeling it out.
+- develop heuristics...tools for not thinking
+	- unthought
+	- when you don't have a heuristic can be frustrating
+	- seeing the heuristic in action.
+	- make a list of frequent heuristics
+	- watching mental idle process 
+		- "Okay two things" - cram's idle process. 
+- intellectual only compare, relations to other things
+- a hole is a thing in a thing it's not
+	- a philosophy filed related to what is a hole - enkiv2
+	- chair, what is a chair. existentialism, etc.
+- working on moving center first
+	- common in many traditions
+	- wax on wax off
+	- Shotokan do rote for 6 months
+		- unlearn mistakes in basic stuff to achieve
+- literary culture disease
+	- breaking things down in steps and in order
+	- video now.
+- learning the art then learn to break the rules
+	- being the rules
+- velvet Underground tuning
+- daydreaming vs. imagination 
+	- imagination, active creative process
+	- commit them to memory to recall so as to improve
+- centers of organizing principles
+	- maybe not discreet, set number but is useful
+	- overlapping
+	- how much is development vs speaking on the level
+	- distinct centers but not
+	- parts taking other part's roles...sometimes it's cool
+	- creative imagination vs passive or idle
+- consuming media
+	- certain movies, holy mountain, Susperia. watch without thinking...entranced
+	- The Witch movie 
+	- when the red shows up...use of negative space
+	- extended scenes -- Tarkovsky
+	- "The Black Gate"
+Exercises:
+- struggle against an impulse
+	- itches-- how often do you reach when you notice
+		- meditation more than yoga
+	- mechanical- working to be aware before tensing jaw happens
+- manually hitting each gear
+	- struggle
+	- overwriting the heuristic
+	- "gotta go fast"
+- the feeling of struggle and willfully struggling against it becomes more difficult the more exhausted one is.
+- man2 to man1
+	- infected cut forces focus on man1 
+	- self treated with herbs 
+	- but required a lot of man1 presence
+	- worked through man2 to get man1 to take over
+	- working, shoulders creeping up. trying to stop
+	- western doesn’t' desal with the emotional side
+	- affirming force, denying force, observing that tension introduced the conscious force
+- holding urge to micturate
+	- similar to itch
+	- feel the predecessor of the movement
+	- urge increases
+	- did body win or mind give up?
+	- determining the automaticity 
+	- body is strong...will effortlessly take over
+- body through which the sense exist
+	- all centers manifest here
+	- gift of manifestation
+	- working with signals 
+- posture
+	- the horse
+	- speaks a different language than the "driver"
+	- inhabiting a posture can have a phenomenal effect on psyche
+	- mirroring someone, following their gait, NLP
+		- we sync when we walk and talk...serves purpose but is not often done consciously
+	- someone at a larp is a Gollum -- cram who was mirroring each person's posture was only clue
+- apprenticeship. plants haven't read the books.
+	- evening primrose might not only bloom in the evening if you're experiencing it
+- story medicine
+- struggle against the physical achieves mastery over body
+
+Next weeks Exercise:
+- focus on the emotional center
+- as the body has habitual actions, now struggle against an emotional habit that brings about negativity
+- see how emotional infection works?
+- suffer intentionally...rather tahn being subject to it. to develop a watcher of it creates an outside perspective of it.
+	- build something by turning negative into opportunity
