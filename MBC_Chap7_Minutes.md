@@ -1,0 +1,219 @@
+- discussion of jazz and such in children’s show like Mr. Rogers, sesame street. xmen cartoon.
+
+**LAW OF OCTAVES**
+- Gurdjieff introduces scale of hidden knowledge. seven note scale
+- esoteric knowledge introduced here. with hermetic thought, alchemy
+	- newton: rainbow as 7 colors to match the law of octaves 
+	- not first physicist but last alchemist ;)
+	- a thing needs to seem complete with these 7 steps
+	- sol is first new note in common series
+	- common note to modulate to in 60s
+	- a doubling of modulation 
+	- a string vibes neighboring string at twice the frequency do to DO
+	- an octave feels the same 'softest' interval 
+	- do DO SOL, 1, 8, 5. but a third of each frequency
+	- two branching points on the octave
+		- mathematical predictable notes but with semitones.
+		- what sounds good is somewhat off if you match the frequencies
+		- DO -initial burst of energy, discordian chaos. first note of the scale
+		- move through the "rainbow" 
+		- these two intervals are where things get off track
+			- in a project there's points where you may lose energy. stalling out. beginning and end. 
+				- at these points they need an energy boost
+				- law of 7 is a recognition where there are places where things naturally decay. may move off course. maybe it needs to?
+				- without bring conscious energy into it it loses that energy
+				- semitones are where you get your dissonance from.
+					- mi to fa, and si to do. points where you resolve in harmony
+					- in fa or mi needs to move in the other direction so tension can be released or harmony can be done.
+				- cybernetic metaphor: phase transition. 
+					- mechanism creates heat
+					- container
+					- thermal element
+					- if you put ice in the container the ice melts. you expect the temp will go up but it doesn’t. the temp actually drops a bit and then it goes up . when it boils it goes down then up. the structure change absorbs this energy for structure change. you lose a bit of energy with the transfer. people try to apply this logic to say social phenom. 
+					 graphing how many likes
+						- "S" curve where it dips and goes up and dips and goes up again because things fundamentally change there.
+
+**SELF REMEMBERING**
+- you can’t do anything when your SR but you only remember when you SR?	
+	- split attention exercise	
+	- aware of inner world and external
+	- 5e concentration spell
+	- inworld not of world
+	- students not remember 
+		- the most important is the cosmic consciousness
+		- PDO book tertium organum
+		- connects this memory and sensation as a child 
+		- is PDO interjecting some story
+	- childhood experiences ... memory of seeing "me" in mirror.
+		- third person memory image of self
+		- "that's me" moment
+		- deliberately memorize a visual image in brain as a kid
+			- perception of self as a receiver
+		- memories of self remembering...a carousel of memories on a train.
+			- difference in space.
+			- liminal spaces...the in-between
+		- esoteric spaces...spaces-between-the-notes.
+		- psycho theme 4 semitones close together
+		- sol as sun...making it the New do. first "New" Do.
+		- an "A" is 440, 880...doubles
+		- do re mi fa. mi to fa when notes are closer 
+			- sound wave up and down. two sound waves can cancel each other out. add the two waveforms together
+			- one tone but double the loudness. lot of rough sound....LOOKS rough more spike, more wigglyness. more complex. 
+		- Gurdjieff make music? -- played a hand organ
+			- He composed G music. Thomas de Hartmann. 
+		- How does this relate to SR?
+			- in chapter 9 but more confusing
+			- journey between 0 and 1, cycle of creation, the Tarot: fool to world, a cosmic patter
+			- story of universe is note do to Do 
+			- re is all the galaxies
+			- descends until the moon. final note of the scale.
+				- organic life on earth is needed to advance life on earth.
+				- final phase of creation something needs to be guided to next destination
+				- organic life serves to keep creation moving 
+				- journey to individual consciousness as playing in the roles of universe
+				- earth is moving along in this blind sleeping tumultuous way...wars, shit, etc. 
+					- appearance of consciousness
+					- Eris "then stop"
+	- Cruising moments
+		- and then there's brief moments of clarity
+			- like a menu screen of options...
+				- savvy of the programs you're running
+			- of the dead matter some became "self"
+				- universe attempt to know itself?
+				- "wants" to but too distracted
+			- when we die, become dead matter
+				- ego death, self not existing is always continuously there. 
+					- natural state of things...then you go back into the things
+					
+**EXERCISE**
+- not to express the negative without purpose ... 
+	- so hard.
+	- fail hard. 
+	- "actively not doing it"
+	- difficult to be at one with purpose at every moment
+	- purposes often contradicts roles
+- election day lowest point argument about MtG.
+	- upset due to other's ignorance
+	- empathy is struggling to get forth.
+	- the program we're inside is the final Do..the final calculation. 
+	- hitchhiker’s lab mice
+	- the absolute, back to one will 
+- doom scrolling as expression of anxiety
+	- tweeting angry
+	- leaning into the surreal
+	- why be sad when you can be surreal
+	- common sense isn’t
+- communication is finding the mirror
+	- make friends...being the human animal
+	- establish that mirror becomes an investigation of self.
+		- discover what you're not
+		- "great minds think like me" because we're trying to find the reflection
+		- memories of finding that reflection everywhere
+		- sports team camaraderie
+		- local venue merch lol yup
+		- same shirt brah!
+- if you realize you’re drunk...and you try to come back. feeling that is the same muscle to self remember.
+	- focus on your social plexus specifically feeling the emotions.
+	- expanding awareness of self -- self as cosmos
+	- shared part of the inner and outer worlds
+		- the liminal spaces 
+		- the awareness moments
+- "Shock" as a term within the law of seven where consciousness is introduced. 
+- the state where tension is found
+- space of amplitude. 
+- law of 7 
+	- we mess up, things deviate from course
+		- natural law that things decay unless they get additional energy
+	- sustained energy directed is resistance to moon food
+- J.G. Bennet's talks on Beelzebub’s tales
+	- J.G. came and went...but then went back to Gurdjieff
+	- different take on some of this
+	- series of talks about Beelzebub's tales
+	- law of 7 in this book is heptaparashanach
+	- space shit....
+	- 7 aspectedness of every whole phenomenon
+	- PDO work appears as a  sequence. this is not in  the heptaparashanach
+	- octave is not a sequence
+	- theophany makes a mixture that forms in 7 layers. 
+		- theophany is divine revealing itself to a mortal
+	- look at it as 7 qualities not sequences 
+		- sequences are later
+	- 7 tastes
+		- do - re : beginning from dream world
+		- do re mi :awareness of reciprocal action. job sharing 
+			- cooking 
+		- do re mi fa: birth pang of the process 
+			- middle of the whole . far from beginning, far from end.
+			- the 4th doesn't appear in the overtone series. it appears in undertone. - point of contention in western classical music
+			- 4th resolves dissonant context 
+		- do re mi fa sol: pienjohari?
+			- results not similar but not opposite to each other
+			- created something
+			- creative power
+	- start of project, start decay , cont., decay end
+		- medicine wheel of magic
+		- 7 cardinal directions 
+		- begin with self, center. then head to east. the first step. 
+		- then you make way around 
+		- fire in south is the fuel for the passion
+			- the magician.'
+			- will
+		- continue to west
+			- decay. part of circle where all your things you do fall apart if you don't feed more energy into it
+		- north is the physical manifestation
+		- direction of above are the ancestors*****
+		- the cauldron is what contains you and everything
+		- and then you start back in the center...coming home to self.
+		- wise woman tradition
+	- meetings with remarkable men
+		- documents G meetings with men
+		- Armenian ruins he found a tablet in some secret passage
+		- references the sarmong brotherhood
+		- says he found it.
+			- symbolic?
+	- offering the equalities of air in yourself to east, west, south, repeat 4x for all directions
+		- doing these movements while holding the symbolism you can start the other journey on the spiral path to come into oneself in meditation
+		- thoughts associated with body positions
+		- aware of others around you
+		- dissolving into the moment--becomes the one organism.
+			- like what you get out of a good acid trip
+			- a good jazz session...where you and the band disappears into just the music
+			- flow state
+		- a miracle is when info travels from a higher to lower world
+			- proper ego death way to merge with people...that can be like putting the self somewhere else for a bit.
+		- speaking together. 
+			- a specific space
+			- missing room reverb 
+			- difficult because body lang provides more info 
+- everyday conscious ness is a trans state we provide for each other that we do to ourselves.
+	- everybody doing normal stuff 
+- how are you with an honest answer will keep people from asking
+- Charles tart: https://s3.amazonaws.com/cttart/articles/april2013articles/On+Consensus+Trance+and+Waking+Up+A+Conversation+with+Charles+Tart.pdf
+	- sites in search of
+	- woke up and then daydreamed of the woke moment for three months after
+	- consensus trance
+	- hypnosis state
+	- compared ordinary conscious with trance state
+- deja vu
+	- aware of the experience 
+	- what does it feel like when in that state of remembering this moment?
+		- what is different about it?
+		- all three brains plugged into each other
+	- synchronicities, same numinous feeling
+	- some moments are more 'real' than others
+	- access available all the time. I feels good to be in that state of 'here I am'
+	- early explanation of consciousness
+	- personality vs consciousness underneath
+- the "why am I doing this meditation"
+- introspection shows how much sitcoms influenced socialization
+- the smell of the library
+
+**TASK**
+- Charles tart line about cultivating a neutral witness
+- self remembering
+	- develop a dual attention
+	- attend internal and external simultaneously
+- *why am I doing this meditation*
+- sense of your character in the role
+
+
