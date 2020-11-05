@@ -161,8 +161,8 @@
 		- continue to west
 			- decay. part of circle where all your things you do fall apart if you don't feed more energy into it
 		- north is the physical manifestation
-		- direction of above are the ancestors*****
-		- the cauldron is what contains you and everything
+		- direction of above are the ancestors, planetary stuff, cosmos 
+		- below is the cauldron is what contains you and everything. being and becoming, the void
 		- and then you start back in the center...coming home to self.
 		- wise woman tradition
 	- meetings with remarkable men
