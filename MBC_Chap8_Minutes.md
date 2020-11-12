@@ -2,7 +2,7 @@
 - declaring thing in head felt silly
 - identifying with 
 - Thich Nhat Hanh's meditation
-	- "I’m breathing in <insert situation> breathing out <insert feeling>
+	- "I’m breathing in [insert situation] breathing out [insert feeling]
 	- this creates a certain kind of mental space that can be replicated without the meditation
 - self remembering for an apprenticeship 
 	- failing at remembering 
