@@ -1,0 +1,204 @@
+**EXPERIMENT**
+- declaring thing in head felt silly
+- identifying with 
+- Thich Nhat Hanh's meditation
+	- "I’m breathing in <insert situation> breathing out <insert feeling>
+	- this creates a certain kind of mental space that can be replicated without the meditation
+- self remembering for an apprenticeship 
+	- failing at remembering 
+	- teacher repeating the story 3x
+		- remembered self due to repeating the situation
+		- sort of a shock
+- split attention difficulty
+	- other G book split attn
+	- not as concrete in ISotM
+- sit and count fingers exercise
+	- as you count each finger with the thumb, really feel the sensation
+	- each hand 5x
+	- 3x a day for a week
+	- To develop associations between moving/intellectual centers
+- count to 144 on fingers in a spiral form
+- why am I doing this meditation!!
+	- totes bananas 
+	- asking the question comes back at same question but in another way
+	- brain like a minecart
+	- different way to answer a question over and over
+	- everything hits us from different angles and we can't help but be struck
+- dance class teaching
+	- teach multitasking in movement
+	- via chunking
+		- making multiple things into one thing
+		- making a trigger point to establish the chonk
+	- feeling the full force of the impression
+- how best to feel the three brains via dance
+	- remember self and choreography
+	- inhabit body and movement
+- granularity of awareness
+	- rube Goldberg machine?
+
+**SELF-REMEMBERING**
+- self-mastery of the three brains
+- all the brains working at once
+- predispositions of associations 
+- method of loci, imagining a space
+- mindful practice 
+- arresting your own will 
+- is the goal surrendering will to experience?
+	- personalities dominate essence
+	- essence is true self
+	- academics are 6 year olds (beeotch)
+
+**IDENTIFICATION**
+- identification when upset - argument might be about something else
+- identification with an emotion inhabits
+- the language "I am upset" 
+	- use different terms "anger is present"
+		- describe a physical sensation 
+		- creates space to choose options
+		- bagavagad gita karma yoga
+		- what you do and what you preoccupy yourself
+		- is the goal to create an organizing principle to which other organizing principles are subordinate
+- apophasis vs catophaisis
+	- negations vs affirmation
+	- Michelangelo cuts away what the sculpture is not
+		- mystical practices that follow that
+		- theistic based is undoing false ideas about god
+	- affirmation is building up vs breaking down
+		- god is a homemaker 
+		- perceiving divinity in all
+	- fourth way doesn't fit 
+		- being conscious is something we think we have but don’t. but can aspire to
+			- otoh there's a natural way of functioning 
+	- hire a smart man to wake you up
+
+**ESSENCE vs BEING**
+ - essences is the basic shape of you before conditioning 
+ - being is "school of life"
+ - personality tends to drown out our being
+- farm folks are more sensitive than city dwellers
+- words of a teaching by rote
+	- analyzing reactions to a thought or phrase
+		- like a koan...letting the phrase *hit* you
+- pondering
+	- 30 min to think
+		- pick a topic to just remember every single thing you know about it
+- essence vs personality
+	- personality as a defense mech?
+		- buffers are closer
+	- if you create a self you go to level 7
+		- your essence becomes a part of "god" endless
+			- you graduate to a kind of immortal essence
+			- personality gets thrown out
+			- Ramakrishna and Kali
+				- the draw of merging with the beloved was so great that he would have to preoccupy himself with desires to remain "here"
+		- in karma is removing habits into creating positive 
+		- Zen bureaucracy was part of the culture--even in the heavens
+		- religions about a debt to the universe
+			- zizek - owe a debt to are parents
+				- unquantifiable because it becomes a debt to try to pay back because parents die first
+				- but if you dedicate you life to a cause or another you give your self to this ever expanding inheritance of life
+				- that one ancestor way back when owes something 'immanence' to this ancient single celled organism
+				- but you pay it forward
+				- thought exp how much money it cost to raise kids
+					- hourly rate of childcare
+					- and you can't quantify the sacred
+		- film where a church organist dies as she loses bit of soul her music gets more discordant
+			- blasphemy it's profane
+			- profanation of revealing the mechanical
+			- law of octaves
+
+**BUFFERS**
+- protect you from contradictions
+- kid is a shit at school
+	- when the teacher calls they don't call him a shit, but use euphemisms
+	- protects from a collision
+- Freudian reaction formations
+- close to the idea of a def mech
+	- build ways to not see
+- if the experience is more scary 
+	- contemplate not getting caught by surprise
+	- protective adaptive things we learn
+- choice
+	- our programming necessitates a "not bad" set of patterning
+- our buffers are obstacles to our being a conscious person
+- therapy goal
+	- theoretical frame works 
+		- mindfulness
+		- functional contextualism 
+	- what is the work of spirituality / figuring yourself out
+- working with each person on their own merits rather than a confined role i.e. patient vs. therapist
+- CBT from G?                ...wait
+- higher will 
+- if you become a man you can change fate?
+	- the inevitable result of your collection of programs
+	- predictable because mechanical
+- higher order laws
+- fate is the result of planetary tides
+- general laws are by no means obligatory ... frees himself of laws.
+- pretending to be who you are supposed to be 
+	- your set of labels 
+- jean Paul Sartre about bad faith
+	- anti-Semite/Jew the anti-Semite knows he is lying ....
+	- we have these two aspects of ourselves
+		- transcendence we have a future
+		- facticity our personal history
+	- we lie by twisting these up
+		- we pretend to be a version of ourselves where ethe lie is true and idea
+- pale face messiah book. read it - Chris (about Elron hub- believed his own bs)
+- you believe your own bs but you spin it to something you don't like
+- the stuff around us will kick us back into sleep - G	
+	- via Identity
+	- TOOL isn't so great to me (fuck you jack -says inner tool fan)
+	- telling opinions I don't have
+- my brother is being an asshat
+	- someone says -- yeah you're right but don't talk about my brother!
+		- via valuing brother identity over 'rightness'
+- I’m scared vs I’m excited
+- two factor theory (arousal state vs cognitive label)
+	- fights at sporting events, adrenaline is rushing. beer spills. you react to this experience for a cause. this jackass rh.
+	- also why a horror movie is good for a date
+		- reframing your anxiety as excitement
+- aim is to have a perm "I"
+	- cultivating an observer
+	- the "I"
+	- don't reframe in the 'wrong' way
+	- rather how can I use this to my benefit?
+- you lose the buffers but still act as you need them
+	- still must 'simulate' them
+	- not being auto
+	- being in the world but not of the world
+- avoid shitting on the floor because you live with people
+- appliances by which a man can always be in the right
+	- third brain saves the second brain
+- obstacles to self observation, not just things we do to avoid criticism
+- version of reality we want to be true	
+	- sleeping world
+	- system 1-3
+- internal locus of control
+- buffer softens the shock of what might wake you up
+- buffers talking about inner contradictions
+	- "I’m not racist but I have a black friend" -- a buffer protecting myself from myself
+  
+**CONSIDERING**
+- external considering -- do more of this. shutting off the part of you engaged in "I"
+- fighting against internal considering
+- adaptation toward another 
+- read the bit that cram read again
+
+**NEXT WEEK**
+- when communicating with others see if you can get completely absorbed with them
+	- be sensitive to their "MENs"
+	- let all that in as a way of blocking out your role, your game.
+	- explore a type of empathy to 'give a shit' but don't get too attached
+- bearing witness
+	- empathy with people
+	- "Holding space"
+	- peer coaching
+		- "I’m noticing this..." 
+		- feelings as part of the conversation 
+- Nonviolent communication: identifying with needs
+	- identifying needs in others, like feelings
+	- hostage negotiation 
+	- find out what they actually want...
+	- want to be reassured
+	- maintain a stability of a worldview
