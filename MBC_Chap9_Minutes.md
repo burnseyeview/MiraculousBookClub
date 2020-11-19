@@ -1,0 +1,181 @@
+- Coke was legal at the time
+- what's up with the hydrogen table
+- PDO being the enlightened idiot when he 'stopped listening'
+- presents entire 4th way in a kind of package
+- C O N = the three laws, then H as nth state
+- defines as this process of matter getting more and more refined
+- the atom of god is the tiniest then gets bigger. 
+	- astral body is 'finer' in the sense that it's not larger, more constrained. like neutrinos or something
+	- the auto evolution of the world is toward bigger chunks and it's up to the individual to grind up the chunks for each 'body'
+- presenting the materialistic model as a way to associate with the ineffable
+- mentions "n-rays"
+	- see wiki article as it's described
+	- outdated idea even at the time of book
+- model of matter through the ray of creation becoming more refined, "finer", and digestion is basically this.
+- three 'brains' are own processers and the food we have in our system is a kind of fuel for these refined processes
+- later he switches to a gas/kerosene model with 'spark points' 
+	- not that finer is better but different levels of fineness for each center
+	- seeing the larger picture vs breaking it up into chunks idea
+- each center has a higher and lower aspect
+	- and are normally 'unplugged'
+	- blocked off from lower centers
+	- pg. 188
+	- other occult teachings say develop higher powers
+		- this system says we juts need to plug them in
+	- not doing the grinding work of understanding details allows the intuition work in the background
+- buildup of materials
+	- mechanically
+	- by refining these evanescent feelings forces a higher processing to occur
+	- self remembering, the work, the internal/external experiences we create fuel that we otherwise wouldn't have
+	- invasion of higher intellect -- religious experience then you faint
+	- can't force the experience
+- how would our brains have evolved these perfect processing faculties that we don't have access to?
+- Julian James' bicameral mind
+	- the voice of god popping in due to a separated corpus callosum and perceived by the individual as an "external voice" informed by cultural influences
+	- like an antagonistic process
+	- and the thought is a result of this battle between opposing forces
+	- like memetics in terms of natural selection
+	- the point at which integration started when trading occurred. the cultural matrix breaks up
+		- G has this ancient way that allows access to higher facilities, but our acculturalization kills our access to it
+- the lower centers are undeveloped
+- Daoist, when tired: sleep etc.
+- low level "adulting"
+- a necessary component of doing something other than reacting.
+	- a solid core in the maelstrom of experience
+- attention on digestion can function as a zap
+- showing a video of you last night changes our povs
+- video can help assist you experience yourself as another.
+	- IT rather than ME
+- Self remembering creates a dual set of hydrogens where something new can be generated
+- self-observation is doing the point of the big bang
+- we're actively seeing ourselves as the universe intends
+- stars becoming conscious...
+- impressions
+	- taking in fuel via intellect
+	- are they how we are filtering senses?
+	- food for body is food, air is second, impressions third
+	- solitary confinement can cause problems
+	- impressions some better for you?
+	- digest in a particular way
+	- Mental fiber: Mentalmucil
+- factory model: 
+	- factory to unlock that higher selves
+	- refinery...to grind the coarser 'foods'
+	- it takes engaging in the world rather than hiding
+	- this sustained capacity of self-reflection creates the food the higher bodies feed from
+	- using the impressions to 'make something else inside'
+	- using that internal tension between yes and no
+	- not getting carried away in daydreams serves a cosmic purpose
+- would be a different book if it were a weekly group for PDO
+	- word brain gets bored from hearing the same words also
+- magic the gathering as a Turing machine
+- circling back as a way of teaching in conversation format
+	- repetition structure, explaining differently
+- fourth way groups say this is a good entry way to G work 
+	- it shows a bit of the vibe
+	- pdo is skeptical and getting it through is somewhat oppositional
+- :eyes: burns
+- discussion about book pacing vibe
+	- conversational
+	- repetitious
+	- like hanging out with someone who forgot they told the story 
+		- maybe they tell it differently
+- sometimes it seems more like mindfulness where elsewhere it seems 
+	- detaching thoughts from space between
+	- creating space
+	- not identifying with the thoughts you are having
+	- putting it at distance but still 
+	- gurdjieff "meditation" from another book
+		- morning sitting with body sensations
+	    - later chapter there is a bit about the unconscious that works well with this meditation
+- Alchemy sort of looming in the background
+	- Newtonian version of alchemy is very Christian
+		- what is the sinner to salvation process?
+		- how is the self-developed?
+		- how does everyday consciousness evolve
+- faith without works alone
+- true faith is doing good work
+- wasted energy
+	- tenseness in muscles
+	- float / isolation tank: realize how tense and all cells just turned to the others to massage them.	
+		- do an hour and a half
+	- peak meditative experience allows for a great space for observation
+	- sense of time comes from attn shifts
+		- massage confronts you
+		- then time drifts off
+- mindfulness
+	- writing about being conscious you write unconsciously 
+	- talking in head but not self-observation
+- thought is action without impact
+	- getting your wires crossed for motivation
+- flow state and not-self-remembering
+	- intense focus coordination
+		- presence of the higher center is you getting out of the way
+		- conditions for flow: alignment between skill and task. consumes you but not overwhelms you.
+		- you are in a place where the machine is not dysfunctional
+		- flow is the right work of centers
+		- outer world and inner are working correctly
+		- memory is missing
+		- getting lost in music
+		- peak music exp vs peak dance exp?	
+			- dance still feels intentional still
+			- learning to dance in a certain way.
+			- then the specific movement appears naturally
+			- learning a new system can get in the way
+		- "the fretboard disappears"
+		- the ideas come out of you from ... somewhere
+			- record your shit and work it out later!
+		- learning a scale, going from movement center, emotional, thinking
+		- machinery of the three men is important but due to the conditions being just so. flow in writing ... until the pencil breaks
+			- hard to do it 'on purpose'
+			- why is it hard to get *back* to flow
+			- maybe it is both getting out of your own way vs setting proper conditions
+	- transient and passive experience - William James
+		- flow and spark points
+			- like a pull mower
+- human design, energy model: body graph, survival, emotional, thought
+	- pilot vehicle
+	- birth time
+- spiritual virtue not practiced under fire is without value - brown bryer
+
+**EXERCISE**
+- online interactions
+- family conversations, inebriated
+	- noticing the tattoos created a connection
+	- Man 2 kind of person
+	- consider externally
+	- became best friends for 15 min
+	- second person's vaccine reaction
+		- did not consider in the same way
+	- actively engaging in conversation.
+	- consider but do not identify
+- a real dialogue and be recognized because you go somewhere near together
+- pleasing experience
+	- fully embracing the considering the other
+	- freeing because considering separates the other from self
+	- letting go others' trip
+	- reality safari bus ride
+	- playing with 5 year old 
+		- pretend play but tired
+		- giving full attention allowed a conscious choice to not get caught in sassafrassy child -- changed the quality of later interactions
+- reality safari is an intentional trip to go mingle with the strangest people
+- locked in during WebEx customer service interactions
+	- difficult to break out of the process without keeping the goal going
+- considering another allows to see more of their being than just the words coming out
+- what is wrong work of centers?
+	- centers are good at certain tasks
+	- if you're walking your late, your movement is going, your intellect is going what route do I take, emotional center is going fuckfuckufkc but wasting energy and being inefficient
+		- or habitually beating yourself up
+	- sometimes the center that should be working isn't doing any work
+	- like when someone wants to be heard, and another is trying to solve the problem. man three working rather than man 2
+	- sublimation - taking the energy of one being and putting it somewhere else
+
+**NEXT WEEK**
+Focus on ways we waste energy.
+- energy is spent on unnecessary work
+- unpleasant emotions, etc.
+- Keep centers straight
+- see bottom of page 196
+- economize or wasting energy
+- maybe better to just observe, but struggle if you can.
+
