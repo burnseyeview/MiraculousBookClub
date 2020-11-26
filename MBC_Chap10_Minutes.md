@@ -36,7 +36,6 @@
 		- a kind of 'group prayer' 
 		- also may dilute the sacred space
 		- catholic incense give the church the sense of the sacred
-
 - attract alike
 - 'clumping' but only with G school
 	- spirituality compatible with your preferences
