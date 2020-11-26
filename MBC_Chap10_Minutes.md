@@ -60,74 +60,74 @@
 	- aftermathematics conga! 
 	- Multilevel marketing 
 	- This group attempts to create a similar 'group spirit'
-		- we're not so much 'learning the  fourth way' but more as a millstone to answering this question
-			- who is the gnostic Eris?
-			- Eris is the force of insight that allows illusions to undo themselves
-				- G dismissive of the unconscious stuff but tapping into it knowing it's false -- you can put two falses together
-			- Shocks the moments to seek out to have those moments of consciousness 
-			- live in a time of illusion...Eris can help out
-				- like it's more than being on the correct side politically
-			- JBP up to the moment of truth and then turning away from it
-			- blowing past truth, hiding from it
-			- mentally associate Eris and Sophia
-				- gave birth to Inanna
-				- Enki is a culture hero, Hermes, Anansi, keeper oof rules of how the world works
-				- Inanna domain is not a fortune teller but controls omens, war/peace, goddess of love and breaking up, fashion, the unknowable. the only one outside Enki’s system in this theology
-				- one myth: one day she stole the great me of princeship (rule of universe). Enki says I’m so impressed that you stole this, they're yours now. you control the universe. 'I can make my own order now'
-			- acknowledgement of the unknowable, we live in a world where we can change the rules so we can never know 
-				- we have chaos, but that's another word for freedom.
-				- we can still lose but we can still change the game
-				- anarchy idea central to discordianism
-					- nothing is true everything is permitted
-					- I can do what I want, if you break free from the shackles of order.
-			- axial revolution: point at which people start doing meta cognition -- so you can self study self. your position in the world isn't just depend on doing what you're told. reacting to situations in a concrete one dimensional way but there's metaprogramming.
-				- you have the axis of the self and can put your reaction to the world... maybe
-			- john higgs : stranger than we can imagine: 20th century is where meaning died.  you can have a focal point to see the universe
-				- culture was reaction to this 
-				- Roderick: after the death of god we now create meaning
-				- prior they were dealing with tactile forces and engineering, 20th century transition to mostly invisible forces, atoms, electricity etc.
-				- regular people need devices to see but devices don't give the whole picture
-				- financialization of economic
-					- transition from manufacturing trading to features trading
-				- 20th century was the time when people mostly were affected by invisible stuff
-				- 20s individual use of credit led to fin crash of not super rich people
-					- technicians are working with radio waves
-				- working with invisible stuff, so the unknowable as a bigger effect on us.
-				- gnostic Eris is the unknowable moon, at feeds bullshit to the world
-					- you have to learn to live with the moon
-					- unconscious is everything that is not 'your consciousness'
-					- gnostic Eris as a kind of collective unconscious which can be ... G focused on how the CU would create accidents, control your life, etc.
-						- individually, it doesn't necessarily do that. only viewable because of stats, abstractions. today we can't even do the statics due to a feedback loop
-						- unpredictable -- strange attractors and other chaotic patterns.
-				- Eris as a twist, wrinkle self conscious that leads to consciousness
-				- Eris as the demiurge
-				- Eris as the shock
-					- gotta feed the moonkey
-					- need the status quo for the shock to be effective
-					- cant have an insight unless you're twisted up 
-				- Eris isn't the moon but the oxygen tank blowing up in between
-					- Eris is the shock 
-					- greyface the moon
-				- don’t turn gods into demon
-					- don't shy away from struggles
-					- Eris is the intentional struggle between yes and know
-					- using the moment of the struggle for something good
-					- the A B lines from the diagram
-				- using the idea of the shocks
-				- discordian shock treatment
-				- Balmer peak
-					- joints jazz cigarettes 
-				- technique relation to theory: doesn't matter if I know all the things if can't put it into practice
-				- 2020 proves moon exploded and we have all these moonlets. and the gravity is weak and they keep veering closer to you.
-					- just by living in the world you get a certain amount of friction. we have to know how to navigate the moonlets the frictions.
-					- Eris as moon fragment
-					- fragmentation allows formal friction, because if you're just being pulled by one force, you don’t' have as much to focus on
-					- kpop moon, furry moon, 
-				- satellites, elon musk, space junk as fragment
-					- you can calculate a collision to fragment all the space junk into each other until you can't reach space
-				- doubling down into a point of crisis into aftermath
-				- LaGrange points, gravity equals out between two bodies
-					- in stasis only because both bodies are pulling against each other at equal force
+	- we're not so much 'learning the  fourth way' but more as a millstone to answering this question
+		- who is the gnostic Eris?
+		- Eris is the force of insight that allows illusions to undo themselves
+			- G dismissive of the unconscious stuff but tapping into it knowing it's false -- you can put two falses together
+		- Shocks the moments to seek out to have those moments of consciousness 
+		- live in a time of illusion...Eris can help out
+			- like it's more than being on the correct side politically
+		- JBP up to the moment of truth and then turning away from it
+		- blowing past truth, hiding from it
+		- mentally associate Eris and Sophia
+			- gave birth to Inanna
+			- Enki is a culture hero, Hermes, Anansi, keeper oof rules of how the world works
+			- Inanna domain is not a fortune teller but controls omens, war/peace, goddess of love and breaking up, fashion, the unknowable. the only one outside Enki’s system in this theology
+			- one myth: one day she stole the great me of princeship (rule of universe). Enki says I’m so impressed that you stole this, they're yours now. you control the universe. 'I can make my own order now'
+		- acknowledgement of the unknowable, we live in a world where we can change the rules so we can never know 
+			- we have chaos, but that's another word for freedom.
+			- we can still lose but we can still change the game
+			- anarchy idea central to discordianism
+				- nothing is true everything is permitted
+				- I can do what I want, if you break free from the shackles of order.
+		- axial revolution: point at which people start doing meta cognition -- so you can self study self. your position in the world isn't just depend on doing what you're told. reacting to situations in a concrete one dimensional way but there's metaprogramming.
+			- you have the axis of the self and can put your reaction to the world... maybe
+		- john higgs : stranger than we can imagine: 20th century is where meaning died.  you can have a focal point to see the universe
+			- culture was reaction to this 
+			- Roderick: after the death of god we now create meaning
+			- prior they were dealing with tactile forces and engineering, 20th century transition to mostly invisible forces, atoms, electricity etc.
+			- regular people need devices to see but devices don't give the whole picture
+			- financialization of economic
+				- transition from manufacturing trading to features trading
+			- 20th century was the time when people mostly were affected by invisible stuff
+			- 20s individual use of credit led to fin crash of not super rich people
+				- technicians are working with radio waves
+			- working with invisible stuff, so the unknowable as a bigger effect on us.
+			- gnostic Eris is the unknowable moon, at feeds bullshit to the world
+				- you have to learn to live with the moon
+				- unconscious is everything that is not 'your consciousness'
+				- gnostic Eris as a kind of collective unconscious which can be ... G focused on how the CU would create accidents, control your life, etc.
+					- individually, it doesn't necessarily do that. only viewable because of stats, abstractions. today we can't even do the statics due to a feedback loop
+					- unpredictable -- strange attractors and other chaotic patterns.
+			- Eris as a twist, wrinkle self conscious that leads to consciousness
+			- Eris as the demiurge
+			- Eris as the shock
+				- gotta feed the moonkey
+				- need the status quo for the shock to be effective
+				- cant have an insight unless you're twisted up 
+			- Eris isn't the moon but the oxygen tank blowing up in between
+				- Eris is the shock 
+				- greyface the moon
+			- don’t turn gods into demon
+				- don't shy away from struggles
+				- Eris is the intentional struggle between yes and know
+				- using the moment of the struggle for something good
+				- the A B lines from the diagram
+			- using the idea of the shocks
+			- discordian shock treatment
+			- Balmer peak
+				- joints jazz cigarettes 
+			- technique relation to theory: doesn't matter if I know all the things if can't put it into practice
+			- 2020 proves moon exploded and we have all these moonlets. and the gravity is weak and they keep veering closer to you.
+				- just by living in the world you get a certain amount of friction. we have to know how to navigate the moonlets the frictions.
+				- Eris as moon fragment
+				- fragmentation allows formal friction, because if you're just being pulled by one force, you don’t' have as much to focus on
+				- kpop moon, furry moon, 
+			- satellites, elon musk, space junk as fragment
+				- you can calculate a collision to fragment all the space junk into each other until you can't reach space
+			- doubling down into a point of crisis into aftermath
+			- LaGrange points, gravity equals out between two bodies
+				- in stasis only because both bodies are pulling against each other at equal force
 **Exercises**
 - observe wrong work of centers
 - noticing among moments of stress
