@@ -58,8 +58,8 @@
 		- you can learn as much from someone one step below you as you can one step above you
 	- consciousness of everyone working together to makes something else
 	- adding more steps to evolve consciousness
-- aftermathematics conga! 
-- Multilevel marketing 
+	- aftermathematics conga! 
+	- Multilevel marketing 
 	- This group attempts to create a similar 'group spirit'
 		- we're not so much 'learning the  fourth way' but more as a millstone to answering this question
 			- who is the gnostic Eris?
