@@ -1,4 +1,4 @@
-the culty sounding chapter
+- the culty sounding chapter
 - no laughing thing
 - higher lower centers as being positive / neg ends of the intellectual center
 - accepting rejecting or seeing things in the opposite ways
