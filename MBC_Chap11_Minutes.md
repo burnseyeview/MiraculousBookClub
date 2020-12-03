@@ -79,7 +79,6 @@
         - talking about food for the moon
         - not about the orthodoxy it's something outside the orthodoxy.
         - the path disappears and reappears
-        
 - desire for consciousness comes from man4 because consciousness is a force multiplier of will     
         
 **Groups**
@@ -114,8 +113,6 @@
     - creating a way stopping that thinking feeling at that moment of disconnection
 - eating mindfully
     - remember the way food tastes and tasting it at the same time
-    - 
-    
 
 **Exercise** 
 - practical work:
