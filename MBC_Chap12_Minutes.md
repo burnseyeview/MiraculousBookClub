@@ -1,5 +1,4 @@
 **Chapter 12 Minutes**
-
 - what's going on with the work we do?
 - People doing things for other reasons motivated by "sex"
 - broader scope of libido, force and energy
