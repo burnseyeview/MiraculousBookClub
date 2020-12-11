@@ -1,0 +1,150 @@
+**Chapter 12 Minutes**
+
+- what's going on with the work we do?
+- People doing things for other reasons motivated by "sex"
+- broader scope of libido, force and energy
+    - G talks about the work done via the sex center
+    - sex center is made of potent, "fine" energy
+    - is connect to the big tank of energy
+    - sex center causes the writing to be wild 
+        - connecting sex and emotion
+- anecdote about unbearably horny energy guy
+    - tough because all decisions were constantly informed by sex
+    - wrong work of sex center
+    - wiring of intellect to sex center
+        - newton -- famously matherbating, proto mgtow
+- Sex is cosmic process of transformation
+    - the H si 12 --- the finest of material to build this sex energy
+    - sex, digestion energy all doing the same thing in Ray of Creation 
+- secret moon...it's invisible ~Beelzebub’s Tales
+- chapter nails the universal experience of getting super-into something and understanding it at a level that has a deeper complexity than with the way you experience life when trying to explain it to your friends
+- the idea of letting something new in has a threat to you that it disrupts something else
+-  disappointed in your "thing" so you're open to stuff
+    - red flag because the experience is similar in same way one might join a neo-nazi group- they're disappointed in something so it fulfills the need for the group experience 
+    - friends were finding them less interesting and less dynamic people in chapter
+        - because now you're more real and honest
+    - seeking out new things due to being disappointed in something else comes naturally
+    - self remembering work makes a person less interesting because they become quieter when ‘doing the work’
+    - starting to think for yourself, life changes
+- mindfulness practice there's a calmness one may find
+- exploring consciousness, conversations asking questions
+- one may be disappointed in things to ask questions: describing the dialectic, law of three--you are presented this tension to reconcile--some additional force, a personal aftermath
+- personality and essence: 
+    - everyone talk about their life stories. you can learn more about what a person chooses to highlight and shadow
+    - it was a task meant to be failed at 
+    - hard to tell to decide to do to create friction vs something you do because you fail all the time.
+    - digging ditches, practical work...
+- G unveiled associate "types" as the types of idiots toasts
+    - people weren't comfortable about which kind of idiot a person in the room
+    - toast of the idiots was unique to G but based on telling people what kind of idiot they are and gave them advice.
+    - G mission was to disabuse PDO as being the "best" student
+    - PDO justifying to himself lol
+- G “magic”: did an experiment where people go in a trance, hypnosis
+    - stripped one of personality 
+    - seemed like he was taking a big breath after running a marathon, stepped down from his role
+    - we construct a self from shrapnel that hits us in our lives and motivates us
+        - the magnetic center -- ideas attract other ideas
+        - autonomy of stuff we internalized..the fake self -- 
+        - like a baby's blank slate personality 
+    - people being amazed by some of these ideas and experiences due to the time and environment, inventions, etc
+    - each person goes into observation mode like a baby...
+    - one didn't have any essence in man 3
+    - they didn't have any buffers...acting in a 'plain' way
+    - living in essence? G says "everything more vivid"
+    - suspicion that G having psychedelics, being childlike...similar to the psychedelic experience
+        - not just drugging people but for entheogenic purposes
+    - fourth way groups in 60s were not advocating entheogens due to bad impressions
+    - get a sense of G personality -- how would G perceive his own experience?
+    - if G is sincere, he's maybe not good at conveying it?
+    - is G an asshole? -- first time each answer to question during a lecture he has presented this kind of jerkiness
+        - perhaps cutting people off from approval seeking behavior
+- G foundation do mundane tasks in presence of each other, but in a state of heightened sensitivity.
+- way of getting through this experience with conscious attention
+- people in G groups - not really giving or seeking addaboys-- don't let a person rest on their laurels. shuns approval seeking
+- doing a complicated task 
+- G said do not compliment children—yo udon't want them to work for the *reward*, you want them to feel good about their own personal sense of accomplishment
+    - study This year: positive reinforcement vs punishment
+- Self Remembering, being a bit of a jerk discourages approval seeking
+- G is trying to create conditions where there's fire under your ass, where you're uncomfortable
+- An Individuated path--each person has their own kind of experiences
+- Teaching: John Dewey? educational theorist: positive negative effect research: giving grades is ineffective, feedback is better. 
+    - Patting on heads does what the grades do
+- parallel rewards going in the wrong place is similar to abuse of sex discussion.
+    - being motivated unconsciously in a place 
+- misuse of energy--doing the thing you THINK is good rather than understanding motivations...
+- where one draws ones evaluation from
+
+**WEEKLY TASK REVIEW**
+- doing something consciously and well 
+- Brushing teeth really well
+    - sucked half the time, but sometimes nice, noticing how much one doesn't think about it.
+    - resistance from HAVING to do this
+- learning about the petting the animals
+- sitting well. better posture 
+    - deliberate act of sitting down, settled body parts
+    - catch the slouch at different points
+    - other points sprawled all out
+    - postures correlating with modes of being?
+        - what are the centers doing-- the energy current
+- get a disconnect from yoga -- immediately present 
+    - difficulty with being present
+    - needing a background stimulation
+- cutting social media/youtube -- creates more need for stimulation later
+- seeing stars again after living in light pollution and really brings you into the moment
+- instead of spreading the focus out in all the media, you get more focuses on the fewer interactions. 
+- 2020 isolation in the city--there's not real places to just BE...but the park ….with maskless people
+- in high school study hall would take graph paper and stare at graph paper until the squares start "popping out"
+    - single point meditation
+    - jamais vu
+    - saying a word over and over is a therapy practice
+- making coffee mindfully
+    - feels like a science experiment
+    - french press
+- first day do all tasks individually--and poured coffee grounds into a bowel
+        - maybe not so conscious
+    - brain 1 had it memorized, but brain 3 had to reverse engineer
+        - karate at the end is very complicated--depends on you creatinmg your habits automatically
+        - if you tune in later to something automatically it's not accessible
+        - relearning old songs playing them f 
+        - caterpillar's dilemma   
+- getting a teacher who is an expert in their field, ingrained their experience for years, tends to have trouble when teaching basics someone to a beginner
+- yoga teacher encouraging student to own their own movements, do it in your own way
+- often unconscious, there's something to take away from doing something intentionally...focusing on the experience of it.
+    - getting away from the thought treadmill
+    - there's a way to re-contextualize the work experience, to get something out of it
+- different ways of learning, via the experience of learning, or just learning it. 
+- what are we like when we work -- do i just go away when not paying attention
+    - can give glimpses of what "I'm" like
+    - one ex G criticisms: appeals to office worker because they're disconnected from their body
+- weird studies podcast : movement in mid century pottery--doesn't matter what it looks like because it's about the transcendent materiality of when making the pot--there's a tradition
+    - like spinning the rugs tradition
+    - transforming something into something different
+    - repetitive motions when spinning wool. 
+        - need to be conscious enough to deal with the wool imperfections and the repetitions can create a trance state.
+        - flow state
+- who am i? what is behind my eyes. the curiosity of that question can give you material
+    - starting making coffee, or digging a ditch with an aim can, in the same way transform the mundane 
+- interpretation on a complicated system: the point is to agonize over something and agonize over analyzing it?
+    - point of hydrogen table is to attach man 3 to the big tank
+    - is the transcendent purpose the medium or the message?
+    - is it objectively/subjectively true? 
+        - either or? yes both?
+    - approaching this as a puzzle mentally--it's not going make sense
+    - all the work is experiential and see what comes out
+    - if you knew the answer if it was medium or message would that help 
+        - yes in regard to certain elements of the cosmology would better integrate
+- Book is not a TTRPG Player's Guide
+    - it's a LARP
+- connections are enhanced through experience
+
+**Movement work**
+- following a beat over discord
+- conference call song or ritual to get everyone in the same place
+- missing the shared experience during the pandemic
+
+**EXERCISE**
+- Developing an AIM to get something out of the conscious experience
+- Think about personal aims, what you're curious about
+- what do you want to learn and ask the questions we're exploring
+- what interests you in this body of work in both the 4th way and the 5th way
+- if you're a seeker what are you seeking
