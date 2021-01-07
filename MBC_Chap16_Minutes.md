@@ -1,0 +1,147 @@
+Miraculous Book club chapter 16
+
+**"Situation at this time was beginning to be defined..."**
+- sitting with the discordant circumstances between book and today
+- there is a 'madness' out there
+	- unconscious impulses susceptible to these impulses
+	- culture is various 'machines wanting things'
+	- remembering both being a part of the bigger picture and remembering that's not as important as the immediate life
+	- violation of sacred space of authority is only important as it's defined by this authoritarian culture
+	- social murder
+	- symbolic / magical gesture of the symbol of taking the capitol
+		- moving politics from a RHP format to a LHP position 
+		- events of today = black magic
+		- using subversive tools to degrade the world
+			- using discordian tools against us, beating ourselves with our own severed arm.
+- events want to create themselves and group is conscious of this unfolding 'machine'
+- decision to stay was a group decision
+- process of acceleration, thing happen, "no one believed in words anymore" 
+	- the work allows us to have access to this other perspective available for the taking
+- reminds back to the initial chapter at the beginning of the war, there's this sense of inevitability 
+- How to not get sidetracked into the circus of reality
+- is there Aftermath anymore
+	- active/passive disorder-bureaucracy is imposed until disorder. collapse, no more a constructed disorder.
+	- we're going back to the disorder stage again?
+	- difficult to piece down the stages
+- life feels faster due to world connections
+	- constant, feels unnatural
+- life speeding up, closer to a new state
+- Feeding on things, energy vampire idea
+	- if vamp is feeding on the troll energy 
+	- the baked potato is the more empathetic conversation
+	- troll food is gross, baked potato better refined
+	- need for more refined consumption
+	- Flat Earth had a need for a kind of validation
+		- but is entertaining this the wrong position?
+		- they experience a kind of gnosis of something they perceive as true
+		- how do we not become the people at the capitol
+			- a 'shock' comes to someone and they mentally break on their ideas
+		- So strongly identified with belief
+		- people at capitol, identified. it's not that they just believe the thing, but they become the thing.
+		- doing something ironically to get a reaction--to the people you do that to, that becomes your identity. once that becomes your identity you get stuck in that role.
+		- exercises root out this identification
+	- key is as long as you can say to yourself "what a crock of shit" and you get unstuck
+- Noah's Arc -- something ideas held for posterity 
+	- you may need it later but you don't know when
+- G dismissing PDO's breath theory
+	- "time is breath" - PDO does a 'back of envelope' ratio, then multiply that ratio 25x and establish arbitrary correspondence
+		- oh that sounds right, (but wrong by orders of magnitude)
+		- PDO seems starved for contact with G
+		- cargo cult mathematics
+	- Newton sublimated sexual energy with random maths and accidentally stumbled upon calculus
+	- Ramanujan's all integers were his friends, taxi number guy. 
+		- bedridden in India
+		- did arithmetic all day and developed an intuition for integers, did a handful of things in number theory after someone discovered him.
+- politics happens faster on the internet
+	- seems faster due to more info
+	- politics also faster at scale
+		- organization can happen quickly
+		- political organization used to be close affinity groups, folks in coffee houses
+			- bars - people talk about politics all day
+		- politics: cocaine period, beer period, lsd period
+			- first constitutional convention boozed out the ass
+		- club as the political action area
+		- new online communities as a political discourse
+		- new channels for affinity groups
+			- furries, scalies (founder of anime died a couple years ago, they found decades long drawings of sexy snakes since the 20s)
+- the cabal today
+	- stick apart, important in group decentralization
+	- lone wolf terrorism
+	- if you're able to leave a group and be in multiple at the same time, your problems with groups minimize with regard to cults.
+		- Mormons make it difficult to leave due to embeddedness in the place and culture
+	- learn how not to say come be one of us, learn how to say be yourself amongst us - Lee Harrington (Sacred Kink)
+	- Founders of discordianism - reps of traditions
+		- each of us bring our individual experiences through the group
+	- make sure everyone in group, while apart of the group, is also one foot and two arms out of the group so new info flows in
+	- diversity 
+	- be in multiple bands
+		- increases a musical network, a scene
+	- fourth way intro groups 
+		- see what you can bring to the experience
+	- role of discordianism in the strange times is to clergy to the weird in some sense
+	- bad faith actors in a group
+		- rather than react, refine by asking more questions
+		- what is it about them and their madness that defines what had happened to them?
+			- is it first ironic, then serious belief?
+		- litmus test for group, coming in good faith or not.
+	- belief: i'm going to change your mine to be like my mind--a breakdown of boundaries
+	- combativeness due to not having any substance behind them.
+		- more about projecting identity, strength
+	- BB Tales, on the nature of war
+		- why don't they stop killing each other?
+		- not in control of themselves, unconscious forces, this periodic madness
+	- aesthetic, libidinal fascism
+	- must post-rationalize otherwise the horrors of our reality are true.
+	
+**Exercise recap**
+- felt like when imitating Bevis/butthead 
+	- feeling the reverberation of words
+	- felt center of gravity in diaphragm
+- tried at different times during day
+	- i wish moved out to hands in sensation
+	- man 3 interpretation of sensation
+	- i wish to be--lack baked in the idea you’re not already
+	- people develop blocks of various energies - asking from where does this blockage stem.
+- felt "I" in voice box, similar to the A.'.A.'. sun salutation ritual
+- reminds of the Islamic call to prayer, feeling and experiencing the words 
+	- tapping out each when learning each word when learning to read
+		- connection between the phys and mental, also taking the positions
+		- identifying a sense of "where". 
+- felt 'I' in chest, last time not really felt it before
+	- conjuring up a sensation of I, what part of the body is generating it?
+- cultivating the watcher
+	- sigil work
+	- logos as consciousness manipulators	
+- finding a social sense of the city
+- psychogeography
+- Alan Moore Highbury Working
+- Art of Memetics "The Traffic Dragon" p223 https://issuu.com/unruh/docs/taom
+- People doing shit causes reverberations
+- Doug Rushkoff: behaving predictably you're trapped in an existing level of incentives
+	- hard to work against incentives
+	- incentives fossilize structures where people only lose the game
+	- only way to fight against those structures is not to win/lose just sacrifice position by not playing the game.
+	- no glory in this...outside the rebel status game
+	- minor refusals to play the game interferes with ability for others survive.
+	- creating stratification
+- sensing meditation:
+	- worth getting more consistent
+	- difficulty doing twice, struggle
+		- brain pulls to other more "important" things
+	- developing to be a conscious exercise	
+	- wanting to do it for the physical expectations but not received it, incurred a struggle
+		- doing exercise to change where the "I" was being felt.
+	- inner centric, experiences
+		- definitive feeling of a shape to the experience
+	- awareness of "volumes" of different parts of the body, especially side to side
+		- fingers are easier to find that awareness than, say, the shoulder
+	- Right leg, would often where one lost concentration
+		- trying a different order, seeing what happen
+
+**NEXT WEEK Exercise**
+- Walking
+- intellectual based Self Remembering exercise
+- while walking, all times maintain sensation of feet touching the ground AS WELL AS counting up with other foot
+	- every time you step with one foot you start counting down other foot counting up.
+	- opportunity to observe automatism
+		
